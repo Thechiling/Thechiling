@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thechiling
-- 👀 I’m interested in ...
+- 👀 I’m interested in table tennis, baseball and rainy days
 - 🌱 I’m currently learning Computer Science @ UVM
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email : tsheringtashisherpa03@gmail.com
